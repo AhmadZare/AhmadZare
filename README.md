@@ -14,8 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-- 👼🏻15 Azar 
 - 💻Software Engineering 
+- 👨‍💻 Programmer
 - 🎯 Business Advisor
 - ❤️Love:🎮<\>🏟
 - 📫 Social Media:  [Instagram](https://instagram.com/AhmadZare75)
